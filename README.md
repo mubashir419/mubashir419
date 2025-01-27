@@ -1,0 +1,6 @@
+- 👋 Hi, I’m @mubashir419
+- 👀 I’m interested in Cyber Security
+- 🌱 I’m currently learning Ethical Hacking prequisets 
+- 💞️ I’m looking to collaborate on any learning platform
+- 📫 reach me at my email : mobikk69@gmail.com
+- 😄 Pronouns: he/him
